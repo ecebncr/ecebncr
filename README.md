@@ -1,4 +1,5 @@
- ![MasterHead](https://tenor.com/tr/view/jeonghan-val-jeonghan-snowball-jeonghan-gif-2219290531585457736)
+![MasterHead](https://tenor.com/bQ175.gif)
+
 <h1 align="center">Hi 👋, I'm Ece</h1>
 <h3 align="center">Digitalization and Technology Engineer</h3>
 
